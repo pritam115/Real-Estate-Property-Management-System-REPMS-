@@ -1,1 +1,0 @@
-# Real-Estate-Property-Management-System-REPMS-
